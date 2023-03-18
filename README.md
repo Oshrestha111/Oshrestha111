@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **oriya.shrestha111@gmail.com**
 
-- ⚡ Fun fact **I Sing**
+- ⚡ Fun fact **I can Sing**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
